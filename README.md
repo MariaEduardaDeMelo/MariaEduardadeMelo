@@ -1,4 +1,4 @@
-### Hi there 👋
+### Boas vindas ao meu perfil🖤 Meu nome é Duda❣️
 
 <!--
 **MariaEduardaDeMelo/MariaEduardadeMelo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
